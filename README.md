@@ -55,6 +55,4 @@ Where I can find routes, maps?
 
 
 
-
-
-[Buy the original board game!]([Ticket to Ride&nbsp;– a board game series by Alan R. Moon, published by Days of Wonder](https://www.daysofwonder.com/tickettoride/en/))
+[Buy the original board game!](https://www.daysofwonder.com/tickettoride/en/)
